@@ -1,1 +1,1 @@
-# 0xamyanshu.github.io
+I'm lomdu gimni.
